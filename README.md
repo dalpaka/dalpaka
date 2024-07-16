@@ -3,6 +3,8 @@
 
 - 📫 How to reach me: cppflow0@gmail.com
 
+- 🙏 Please support me https://ko-fi.com/sdxdude its great help 😁
+
 <!--
 **dalpaka/dalpaka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
