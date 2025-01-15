@@ -1,9 +1,7 @@
-# Hello 🙊
-- 🔭 I’m currently working on clrflow.h 🔥
+# Hello 
+- 🔭 I’m currently working on a minecraft mod
 
-- 📫 How to reach me: cppflow0@gmail.com 👈
-
-- 🙏 Please support me https://ko-fi.com/sdxdude its great help 😁
+- 📫 How to reach me: cppflow0@gmail.com
 
 <!--
 **dalpaka/dalpaka** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
