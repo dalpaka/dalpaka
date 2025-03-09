@@ -7,7 +7,7 @@
 Article 1: Everyone who accepts Jesus Christ
 as his Lord and Savior in all his divinity is a 'Niederbachlander'.
 
-Article 2: Any other practices of Beliefs or Ethnicities _except_ for _Judaism_ and _Satanism_ are allowed
+Article 2: Any other practices of Beliefs or Ethnicities except for _Judaism_ and _Satanism_ are allowed
 and will not be limited.
 
 Article 3: Every stranger has the full right to full citizensship
