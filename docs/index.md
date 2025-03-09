@@ -4,7 +4,7 @@
 
 ### Sektion 1 - Rights:
 
-Article 1: Everyopne who accepts Jesus Christ
+Article 1: Everyone who accepts Jesus Christ
 as his Lord and Savior in all his divinity is a 'Niederbachlander'.
 
 Article 2: Any other practices of Beliefs or Ethnicities are allowed
