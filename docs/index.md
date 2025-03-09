@@ -1,8 +1,8 @@
 # The Independant Micronation of Niederbachland
 
-## - Constitution of the Independant Micronation of Niederbachland
+## Constitution of the Independant Micronation of Niederbachland
 
-### -- Sektion 1 - Rights:
+### Sektion 1 - Rights:
 
 Article 1: Everyopne who accepts Jesus Christ
 as his Lord and Savior in all his divinity is a 'Niederbachlander'.
